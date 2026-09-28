@@ -1,0 +1,2 @@
+# premium-dollhouse-scale-001-dollhouse-scale-build-mini-f
+Juggling scale conversions, material lists, and furniture designs across a dozen spreadsheets? The Dollhouse Scale Build &amp; Mini Furniture Hub consolidates everything into one organized Notion workspace—so you spend less time planning and more time building.  This all-in-one Notion template is engineered specifically for dollhouse builders who need
